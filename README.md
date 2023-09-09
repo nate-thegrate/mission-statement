@@ -26,7 +26,7 @@ Success has never been—and will never be—a guarantee, but I am still pursuin
 
 > We see more and farther than our predecessors, not because we have keener vision or greater height, but because we are lifted up and borne aloft on their gigantic stature.
 
-On the one hand, our society has made an incredible amount of progress in a very short time, but on the other hand, there's still just so much wrong with the world. It seems like there's no way everything be resolved within my lifetime, but if I can help pave the way for a future generation to do it, that would be so awesome.
+On the one hand, our society has made an incredible amount of progress in a very short time, but on the other hand, there's still just so much wrong with the world. It seems like there's no way everything will be resolved within my lifetime, but if I can help pave the way for a future generation to do it, that would be so awesome.
 
 <br>
 
