@@ -32,11 +32,7 @@ On the one hand, our society has made an incredible amount of progress in a very
 
 ### act based on love
 
-The trillions of cells in my body have come together to create something with a greater capacity for strength, intelligence, and compassion than would ever be possible for a cell on its own. It's more than just cooperation: I see myself not as a collection of parts working together, but as an individual.
-
-<br>
-
-In some ways, the concept of myself as indivisible but separate from the rest of the universe is completely arbitrary.
+In some ways, conceptualizing a collection of cells as "myself"—indivisible but separate from the rest of the universe—is completely arbitrary.
 
 I believe that the more we can rely on each other, the more our society will thrive. I want to think, speak, and act in a way that dissolves the boundaries between myself, my family, and my community.
 
